@@ -9,6 +9,6 @@ ultilizando para minha organizaçao e compatilhamentos dos meus projetos desenvo
 
 ### meu insta pvv.joao.boss segue lá bb
 
-!.[].()https://media.tenor.com/EDa-2dguBeEAAAAi/one-piece-zoro.gif
+![]()https://media.tenor.com/EDa-2dguBeEAAAAi/one-piece-zoro.gif
 
 
